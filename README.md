@@ -6,3 +6,4 @@ Silakan gunakan format berikut:<br>
 
 Berikut adalah daftar Volunter yang diterima:
 * Oon Arfiandwi, [oo.or.id](https://oo.or.id).
+* Riana Dwi Rahma, [https://www.linkedin.com/in/riana-dwi-rahma-4119a3251].
